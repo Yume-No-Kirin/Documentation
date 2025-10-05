@@ -1,0 +1,2 @@
+# Wiki
+YumeNoKirin's Wiki
